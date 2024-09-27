@@ -1,0 +1,17 @@
+{
+  "minimal-style@@h1-size": "1.6em",
+  "minimal-style@@h1-color@@dark": "#C111E4",
+  "minimal-style@@h2-size": "1.45em",
+  "minimal-style@@h2-color@@dark": "#FF9C3D",
+  "minimal-style@@h3-size": "1.15em",
+  "minimal-style@@h3-color@@dark": "#FFBD83",
+  "minimal-style@@h4-color@@dark": "#FBD4B0",
+  "minimal-style@@h5-color@@dark": "#FBD4B0",
+  "minimal-style@@h6-color@@dark": "#F5DAC2",
+  "minimal-style@@h2-weight": 600,
+  "minimal-style@@h1-weight": 600,
+  "minimal-style@@link-color@@dark": "#FFA6E0",
+  "minimal-style@@link-color-hover@@dark": "#CC52A1",
+  "minimal-style@@h4-size": "1em",
+  "minimal-style@@h5-size": "0.9em"
+}

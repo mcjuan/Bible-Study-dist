@@ -1,0 +1,8 @@
+###### Navigation
+*[[KJV Bible Index|Bible Index]]*
+
+### Chapters
+- [[KJV/8 - Ruth/Ruth 1|Ruth - ch. 1]]
+- [[KJV/8 - Ruth/Ruth 2|Ruth - ch. 2]]
+- [[KJV/8 - Ruth/Ruth 3|Ruth - ch. 3]]
+- [[KJV/8 - Ruth/Ruth 4|Ruth - ch. 4]]

@@ -1,0 +1,102 @@
+
+###### Navigation
+**[[The Book of HOSEA 1|⏪ The Book of HOSEA 1]] | [[The Book of HOSEA|Chapters]] | [[The Book of HOSEA 3|The Book of HOSEA 3 ⏩]]**
+**[[The Book of HOSEA 1|First (1)]] | [[The Book of HOSEA 14|Last (14)]]**
+
+###### 1
+``` verse
+28 2 1 
+```
+###### 2
+``` verse
+28 2 2 
+```
+###### 3
+``` verse
+28 2 3 
+```
+###### 4
+``` verse
+28 2 4 
+```
+###### 5
+``` verse
+28 2 5 
+```
+###### 6
+``` verse
+28 2 6 
+```
+###### 7
+``` verse
+28 2 7 
+```
+###### 8
+``` verse
+28 2 8 
+```
+###### 9
+``` verse
+28 2 9 
+```
+###### 10
+``` verse
+28 2 10 
+```
+###### 11
+``` verse
+28 2 11 
+```
+###### 12
+``` verse
+28 2 12 
+```
+###### 13
+``` verse
+28 2 13 
+```
+###### 14
+``` verse
+28 2 14 
+```
+###### 15
+``` verse
+28 2 15 
+```
+###### 16
+``` verse
+28 2 16 
+```
+###### 17
+``` verse
+28 2 17 
+```
+###### 18
+``` verse
+28 2 18 
+```
+###### 19
+``` verse
+28 2 19 
+```
+###### 20
+``` verse
+28 2 20 
+```
+###### 21
+``` verse
+28 2 21 
+```
+###### 22
+``` verse
+28 2 22 
+```
+###### 23
+``` verse
+28 2 23 
+```
+
+###### Navigation
+**[[The Book of HOSEA 1|⏪ The Book of HOSEA 1]] | [[The Book of HOSEA|Chapters]] | [[The Book of HOSEA 3|The Book of HOSEA 3 ⏩]]**
+**[[The Book of HOSEA 1|First (1)]] | [[The Book of HOSEA 14|Last (14)]]**
+

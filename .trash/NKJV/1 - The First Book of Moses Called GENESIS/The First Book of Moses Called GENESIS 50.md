@@ -1,0 +1,114 @@
+
+###### Navigation
+**[[The First Book of Moses Called GENESIS 49|⏪ The First Book of Moses Called GENESIS 49]] | [[The First Book of Moses Called GENESIS|Chapters]] | [[The Second Book of Moses Called EXODUS 1|The Second Book of Moses Called EXODUS 1 ⏩]]**
+**[[The First Book of Moses Called GENESIS 1|First (1)]] | [[The First Book of Moses Called GENESIS 50|Last (50)]]**
+
+###### 1
+``` verse
+1 50 1 
+```
+###### 2
+``` verse
+1 50 2 
+```
+###### 3
+``` verse
+1 50 3 
+```
+###### 4
+``` verse
+1 50 4 
+```
+###### 5
+``` verse
+1 50 5 
+```
+###### 6
+``` verse
+1 50 6 
+```
+###### 7
+``` verse
+1 50 7 
+```
+###### 8
+``` verse
+1 50 8 
+```
+###### 9
+``` verse
+1 50 9 
+```
+###### 10
+``` verse
+1 50 10 
+```
+###### 11
+``` verse
+1 50 11 
+```
+###### 12
+``` verse
+1 50 12 
+```
+###### 13
+``` verse
+1 50 13 
+```
+###### 14
+``` verse
+1 50 14 
+```
+###### 15
+``` verse
+1 50 15 
+```
+###### 16
+``` verse
+1 50 16 
+```
+###### 17
+``` verse
+1 50 17 
+```
+###### 18
+``` verse
+1 50 18 
+```
+###### 19
+``` verse
+1 50 19 
+```
+###### 20
+``` verse
+1 50 20 
+```
+###### 21
+``` verse
+1 50 21 
+```
+###### 22
+``` verse
+1 50 22 
+```
+###### 23
+``` verse
+1 50 23 
+```
+###### 24
+``` verse
+1 50 24 
+```
+###### 25
+``` verse
+1 50 25 
+```
+###### 26
+``` verse
+1 50 26 
+```
+
+###### Navigation
+**[[The First Book of Moses Called GENESIS 49|⏪ The First Book of Moses Called GENESIS 49]] | [[The First Book of Moses Called GENESIS|Chapters]] | [[The Second Book of Moses Called EXODUS 1|The Second Book of Moses Called EXODUS 1 ⏩]]**
+**[[The First Book of Moses Called GENESIS 1|First (1)]] | [[The First Book of Moses Called GENESIS 50|Last (50)]]**
+

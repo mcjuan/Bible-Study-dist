@@ -1,0 +1,134 @@
+
+###### Navigation
+**[[The First Book of Moses Called GENESIS 33|⏪ The First Book of Moses Called GENESIS 33]] | [[The First Book of Moses Called GENESIS|Chapters]] | [[The First Book of Moses Called GENESIS 35|The First Book of Moses Called GENESIS 35 ⏩]]**
+**[[The First Book of Moses Called GENESIS 1|First (1)]] | [[The First Book of Moses Called GENESIS 50|Last (50)]]**
+
+###### 1
+``` verse
+1 34 1 
+```
+###### 2
+``` verse
+1 34 2 
+```
+###### 3
+``` verse
+1 34 3 
+```
+###### 4
+``` verse
+1 34 4 
+```
+###### 5
+``` verse
+1 34 5 
+```
+###### 6
+``` verse
+1 34 6 
+```
+###### 7
+``` verse
+1 34 7 
+```
+###### 8
+``` verse
+1 34 8 
+```
+###### 9
+``` verse
+1 34 9 
+```
+###### 10
+``` verse
+1 34 10 
+```
+###### 11
+``` verse
+1 34 11 
+```
+###### 12
+``` verse
+1 34 12 
+```
+###### 13
+``` verse
+1 34 13 
+```
+###### 14
+``` verse
+1 34 14 
+```
+###### 15
+``` verse
+1 34 15 
+```
+###### 16
+``` verse
+1 34 16 
+```
+###### 17
+``` verse
+1 34 17 
+```
+###### 18
+``` verse
+1 34 18 
+```
+###### 19
+``` verse
+1 34 19 
+```
+###### 20
+``` verse
+1 34 20 
+```
+###### 21
+``` verse
+1 34 21 
+```
+###### 22
+``` verse
+1 34 22 
+```
+###### 23
+``` verse
+1 34 23 
+```
+###### 24
+``` verse
+1 34 24 
+```
+###### 25
+``` verse
+1 34 25 
+```
+###### 26
+``` verse
+1 34 26 
+```
+###### 27
+``` verse
+1 34 27 
+```
+###### 28
+``` verse
+1 34 28 
+```
+###### 29
+``` verse
+1 34 29 
+```
+###### 30
+``` verse
+1 34 30 
+```
+###### 31
+``` verse
+1 34 31 
+```
+
+###### Navigation
+**[[The First Book of Moses Called GENESIS 33|⏪ The First Book of Moses Called GENESIS 33]] | [[The First Book of Moses Called GENESIS|Chapters]] | [[The First Book of Moses Called GENESIS 35|The First Book of Moses Called GENESIS 35 ⏩]]**
+**[[The First Book of Moses Called GENESIS 1|First (1)]] | [[The First Book of Moses Called GENESIS 50|Last (50)]]**
+

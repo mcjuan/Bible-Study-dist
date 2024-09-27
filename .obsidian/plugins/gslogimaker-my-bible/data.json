@@ -1,0 +1,11 @@
+{
+  "translation": "NIV",
+  "reading_translation": "KJV",
+  "bible_folder": "/Holy Bible/",
+  "book_name_format": "{order} - {book}",
+  "padded_order": false,
+  "index_name_format": "Bible",
+  "chapter_index_name_format": "{book}",
+  "chapter_index_link_format": "- [[{chapter_name}|{book} - ch. {chapter}]]",
+  "_built_translation": "NIV"
+}

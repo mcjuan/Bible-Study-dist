@@ -1,0 +1,146 @@
+
+###### Navigation
+**[[The First Book of Moses Called GENESIS 43|⏪ The First Book of Moses Called GENESIS 43]] | [[The First Book of Moses Called GENESIS|Chapters]] | [[The First Book of Moses Called GENESIS 45|The First Book of Moses Called GENESIS 45 ⏩]]**
+**[[The First Book of Moses Called GENESIS 1|First (1)]] | [[The First Book of Moses Called GENESIS 50|Last (50)]]**
+
+###### 1
+``` verse
+1 44 1 
+```
+###### 2
+``` verse
+1 44 2 
+```
+###### 3
+``` verse
+1 44 3 
+```
+###### 4
+``` verse
+1 44 4 
+```
+###### 5
+``` verse
+1 44 5 
+```
+###### 6
+``` verse
+1 44 6 
+```
+###### 7
+``` verse
+1 44 7 
+```
+###### 8
+``` verse
+1 44 8 
+```
+###### 9
+``` verse
+1 44 9 
+```
+###### 10
+``` verse
+1 44 10 
+```
+###### 11
+``` verse
+1 44 11 
+```
+###### 12
+``` verse
+1 44 12 
+```
+###### 13
+``` verse
+1 44 13 
+```
+###### 14
+``` verse
+1 44 14 
+```
+###### 15
+``` verse
+1 44 15 
+```
+###### 16
+``` verse
+1 44 16 
+```
+###### 17
+``` verse
+1 44 17 
+```
+###### 18
+``` verse
+1 44 18 
+```
+###### 19
+``` verse
+1 44 19 
+```
+###### 20
+``` verse
+1 44 20 
+```
+###### 21
+``` verse
+1 44 21 
+```
+###### 22
+``` verse
+1 44 22 
+```
+###### 23
+``` verse
+1 44 23 
+```
+###### 24
+``` verse
+1 44 24 
+```
+###### 25
+``` verse
+1 44 25 
+```
+###### 26
+``` verse
+1 44 26 
+```
+###### 27
+``` verse
+1 44 27 
+```
+###### 28
+``` verse
+1 44 28 
+```
+###### 29
+``` verse
+1 44 29 
+```
+###### 30
+``` verse
+1 44 30 
+```
+###### 31
+``` verse
+1 44 31 
+```
+###### 32
+``` verse
+1 44 32 
+```
+###### 33
+``` verse
+1 44 33 
+```
+###### 34
+``` verse
+1 44 34 
+```
+
+###### Navigation
+**[[The First Book of Moses Called GENESIS 43|⏪ The First Book of Moses Called GENESIS 43]] | [[The First Book of Moses Called GENESIS|Chapters]] | [[The First Book of Moses Called GENESIS 45|The First Book of Moses Called GENESIS 45 ⏩]]**
+**[[The First Book of Moses Called GENESIS 1|First (1)]] | [[The First Book of Moses Called GENESIS 50|Last (50)]]**
+

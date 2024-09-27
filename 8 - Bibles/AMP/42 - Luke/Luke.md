@@ -1,0 +1,28 @@
+###### Navigation
+*[[1 - Indexes/3. AMP Bible Index|Bible Index]]*
+
+### Chapters
+- [[8 - Bibles/AMP/42 - Luke/Luke 1|Luke - ch. 1]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 2|Luke - ch. 2]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 3|Luke - ch. 3]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 4|Luke - ch. 4]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 5|Luke - ch. 5]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 6|Luke - ch. 6]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 7|Luke - ch. 7]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 8|Luke - ch. 8]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 9|Luke - ch. 9]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 10|Luke - ch. 10]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 11|Luke - ch. 11]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 12|Luke - ch. 12]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 13|Luke - ch. 13]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 14|Luke - ch. 14]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 15|Luke - ch. 15]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 16|Luke - ch. 16]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 17|Luke - ch. 17]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 18|Luke - ch. 18]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 19|Luke - ch. 19]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 20|Luke - ch. 20]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 21|Luke - ch. 21]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 22|Luke - ch. 22]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 23|Luke - ch. 23]]
+- [[8 - Bibles/AMP/42 - Luke/Luke 24|Luke - ch. 24]]

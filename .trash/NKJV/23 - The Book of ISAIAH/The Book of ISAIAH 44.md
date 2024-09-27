@@ -1,0 +1,122 @@
+
+###### Navigation
+**[[The Book of ISAIAH 43|⏪ The Book of ISAIAH 43]] | [[The Book of ISAIAH|Chapters]] | [[The Book of ISAIAH 45|The Book of ISAIAH 45 ⏩]]**
+**[[The Book of ISAIAH 1|First (1)]] | [[The Book of ISAIAH 66|Last (66)]]**
+
+###### 1
+``` verse
+23 44 1 
+```
+###### 2
+``` verse
+23 44 2 
+```
+###### 3
+``` verse
+23 44 3 
+```
+###### 4
+``` verse
+23 44 4 
+```
+###### 5
+``` verse
+23 44 5 
+```
+###### 6
+``` verse
+23 44 6 
+```
+###### 7
+``` verse
+23 44 7 
+```
+###### 8
+``` verse
+23 44 8 
+```
+###### 9
+``` verse
+23 44 9 
+```
+###### 10
+``` verse
+23 44 10 
+```
+###### 11
+``` verse
+23 44 11 
+```
+###### 12
+``` verse
+23 44 12 
+```
+###### 13
+``` verse
+23 44 13 
+```
+###### 14
+``` verse
+23 44 14 
+```
+###### 15
+``` verse
+23 44 15 
+```
+###### 16
+``` verse
+23 44 16 
+```
+###### 17
+``` verse
+23 44 17 
+```
+###### 18
+``` verse
+23 44 18 
+```
+###### 19
+``` verse
+23 44 19 
+```
+###### 20
+``` verse
+23 44 20 
+```
+###### 21
+``` verse
+23 44 21 
+```
+###### 22
+``` verse
+23 44 22 
+```
+###### 23
+``` verse
+23 44 23 
+```
+###### 24
+``` verse
+23 44 24 
+```
+###### 25
+``` verse
+23 44 25 
+```
+###### 26
+``` verse
+23 44 26 
+```
+###### 27
+``` verse
+23 44 27 
+```
+###### 28
+``` verse
+23 44 28 
+```
+
+###### Navigation
+**[[The Book of ISAIAH 43|⏪ The Book of ISAIAH 43]] | [[The Book of ISAIAH|Chapters]] | [[The Book of ISAIAH 45|The Book of ISAIAH 45 ⏩]]**
+**[[The Book of ISAIAH 1|First (1)]] | [[The Book of ISAIAH 66|Last (66)]]**
+

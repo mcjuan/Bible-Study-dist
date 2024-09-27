@@ -1,0 +1,166 @@
+
+###### Navigation
+**[[The Epistle to the HEBREWS 9|⏪ The Epistle to the HEBREWS 9]] | [[The Epistle to the HEBREWS|Chapters]] | [[The Epistle to the HEBREWS 11|The Epistle to the HEBREWS 11 ⏩]]**
+**[[The Epistle to the HEBREWS 1|First (1)]] | [[The Epistle to the HEBREWS 13|Last (13)]]**
+
+###### 1
+``` verse
+58 10 1 
+```
+###### 2
+``` verse
+58 10 2 
+```
+###### 3
+``` verse
+58 10 3 
+```
+###### 4
+``` verse
+58 10 4 
+```
+###### 5
+``` verse
+58 10 5 
+```
+###### 6
+``` verse
+58 10 6 
+```
+###### 7
+``` verse
+58 10 7 
+```
+###### 8
+``` verse
+58 10 8 
+```
+###### 9
+``` verse
+58 10 9 
+```
+###### 10
+``` verse
+58 10 10 
+```
+###### 11
+``` verse
+58 10 11 
+```
+###### 12
+``` verse
+58 10 12 
+```
+###### 13
+``` verse
+58 10 13 
+```
+###### 14
+``` verse
+58 10 14 
+```
+###### 15
+``` verse
+58 10 15 
+```
+###### 16
+``` verse
+58 10 16 
+```
+###### 17
+``` verse
+58 10 17 
+```
+###### 18
+``` verse
+58 10 18 
+```
+###### 19
+``` verse
+58 10 19 
+```
+###### 20
+``` verse
+58 10 20 
+```
+###### 21
+``` verse
+58 10 21 
+```
+###### 22
+``` verse
+58 10 22 
+```
+###### 23
+``` verse
+58 10 23 
+```
+###### 24
+``` verse
+58 10 24 
+```
+###### 25
+``` verse
+58 10 25 
+```
+###### 26
+``` verse
+58 10 26 
+```
+###### 27
+``` verse
+58 10 27 
+```
+###### 28
+``` verse
+58 10 28 
+```
+###### 29
+``` verse
+58 10 29 
+```
+###### 30
+``` verse
+58 10 30 
+```
+###### 31
+``` verse
+58 10 31 
+```
+###### 32
+``` verse
+58 10 32 
+```
+###### 33
+``` verse
+58 10 33 
+```
+###### 34
+``` verse
+58 10 34 
+```
+###### 35
+``` verse
+58 10 35 
+```
+###### 36
+``` verse
+58 10 36 
+```
+###### 37
+``` verse
+58 10 37 
+```
+###### 38
+``` verse
+58 10 38 
+```
+###### 39
+``` verse
+58 10 39 
+```
+
+###### Navigation
+**[[The Epistle to the HEBREWS 9|⏪ The Epistle to the HEBREWS 9]] | [[The Epistle to the HEBREWS|Chapters]] | [[The Epistle to the HEBREWS 11|The Epistle to the HEBREWS 11 ⏩]]**
+**[[The Epistle to the HEBREWS 1|First (1)]] | [[The Epistle to the HEBREWS 13|Last (13)]]**
+

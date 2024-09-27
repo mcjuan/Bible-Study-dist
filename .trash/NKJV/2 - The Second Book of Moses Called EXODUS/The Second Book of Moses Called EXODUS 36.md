@@ -1,0 +1,162 @@
+
+###### Navigation
+**[[The Second Book of Moses Called EXODUS 35|⏪ The Second Book of Moses Called EXODUS 35]] | [[The Second Book of Moses Called EXODUS|Chapters]] | [[The Second Book of Moses Called EXODUS 37|The Second Book of Moses Called EXODUS 37 ⏩]]**
+**[[The Second Book of Moses Called EXODUS 1|First (1)]] | [[The Second Book of Moses Called EXODUS 40|Last (40)]]**
+
+###### 1
+``` verse
+2 36 1 
+```
+###### 2
+``` verse
+2 36 2 
+```
+###### 3
+``` verse
+2 36 3 
+```
+###### 4
+``` verse
+2 36 4 
+```
+###### 5
+``` verse
+2 36 5 
+```
+###### 6
+``` verse
+2 36 6 
+```
+###### 7
+``` verse
+2 36 7 
+```
+###### 8
+``` verse
+2 36 8 
+```
+###### 9
+``` verse
+2 36 9 
+```
+###### 10
+``` verse
+2 36 10 
+```
+###### 11
+``` verse
+2 36 11 
+```
+###### 12
+``` verse
+2 36 12 
+```
+###### 13
+``` verse
+2 36 13 
+```
+###### 14
+``` verse
+2 36 14 
+```
+###### 15
+``` verse
+2 36 15 
+```
+###### 16
+``` verse
+2 36 16 
+```
+###### 17
+``` verse
+2 36 17 
+```
+###### 18
+``` verse
+2 36 18 
+```
+###### 19
+``` verse
+2 36 19 
+```
+###### 20
+``` verse
+2 36 20 
+```
+###### 21
+``` verse
+2 36 21 
+```
+###### 22
+``` verse
+2 36 22 
+```
+###### 23
+``` verse
+2 36 23 
+```
+###### 24
+``` verse
+2 36 24 
+```
+###### 25
+``` verse
+2 36 25 
+```
+###### 26
+``` verse
+2 36 26 
+```
+###### 27
+``` verse
+2 36 27 
+```
+###### 28
+``` verse
+2 36 28 
+```
+###### 29
+``` verse
+2 36 29 
+```
+###### 30
+``` verse
+2 36 30 
+```
+###### 31
+``` verse
+2 36 31 
+```
+###### 32
+``` verse
+2 36 32 
+```
+###### 33
+``` verse
+2 36 33 
+```
+###### 34
+``` verse
+2 36 34 
+```
+###### 35
+``` verse
+2 36 35 
+```
+###### 36
+``` verse
+2 36 36 
+```
+###### 37
+``` verse
+2 36 37 
+```
+###### 38
+``` verse
+2 36 38 
+```
+
+###### Navigation
+**[[The Second Book of Moses Called EXODUS 35|⏪ The Second Book of Moses Called EXODUS 35]] | [[The Second Book of Moses Called EXODUS|Chapters]] | [[The Second Book of Moses Called EXODUS 37|The Second Book of Moses Called EXODUS 37 ⏩]]**
+**[[The Second Book of Moses Called EXODUS 1|First (1)]] | [[The Second Book of Moses Called EXODUS 40|Last (40)]]**
+
