@@ -1,8 +1,0 @@
-{
-	"nodes":[
-		{"id":"bd2858efc76b1365","x":-160,"y":-140,"width":250,"height":60,"type":"text","text":"asdasd"},
-		{"id":"656c1cfc5fd8dcd2","x":-125,"y":63,"width":250,"height":60,"type":"text","text":""},
-		{"id":"30c27b0f303f4e3f","x":-180,"y":180,"width":400,"height":133,"type":"file","file":"5 - Notes/John 1.md"}
-	],
-	"edges":[]
-}
